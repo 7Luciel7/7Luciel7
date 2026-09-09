@@ -1,4 +1,4 @@
-## Hi there 👋
+![707](83d658258c4e07b03c8b7e5d024d1e49.gif)
 
 <!--
 **7Luciel7/7Luciel7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
