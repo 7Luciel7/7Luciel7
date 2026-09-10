@@ -5,4 +5,3 @@
 
 — Feel free to int however you'd like im very approachable 
 
-— Ts kinda ass, strwpage in progress if you even care wtv
