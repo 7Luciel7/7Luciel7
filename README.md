@@ -5,9 +5,7 @@
 
 — Feel free to int however you'd like im very approachable 
 
-— I'm still remaking strwpage! Will dedicate this to Sae and Kris!
-
-— I'm not good at conversation and will mostly just respond back to you!
+— I'm not good at conversation
 
 — The way i respond will depend on my social battery but I'll never be mean!
 
