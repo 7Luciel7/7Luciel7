@@ -1,4 +1,4 @@
-![707](83d658258c4e07b03c8b7e5d024d1e49.gif)
+![707](Untitled1488_20260924163156.png)
 
 
 — HEYOO ! More info on strwpage yay yay yay yay yay yay ya
