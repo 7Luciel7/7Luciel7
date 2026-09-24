@@ -12,3 +12,5 @@
 — The way i respond will depend on my social battery but I'll never be mean!
 
 — Mysme fan do int! yayy!!!
+
+— Two strawpage, one is old, dedicated to sae and Kris
